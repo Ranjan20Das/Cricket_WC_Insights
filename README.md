@@ -1,1 +1,0 @@
-# Cricket_WC_Insights
